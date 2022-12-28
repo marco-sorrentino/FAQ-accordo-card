@@ -1,0 +1,2 @@
+# FAQ accordo card
+ 
